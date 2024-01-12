@@ -1,5 +1,5 @@
- 👋 Hi, I’m Zoe Ndedde
- 👀 I’m interested in It/Business Analytic roles
+ 👋 Hi there, I’m Zoe Ndedde
+ 👀 I’m interested in IT/Business Analytic roles
  💞️ I’m looking to collaborate on Technical projects
  📫 How to reach me zoendedde18@gmail.com
  😄 Pronouns: She/Her
